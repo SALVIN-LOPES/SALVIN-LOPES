@@ -18,7 +18,7 @@
 
 - 📫 How to reach me **salvinlopes20@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Xiw6ipFzAtOwGKV0aX6DdYn_tSND9AjT/view](https://drive.google.com/file/d/1Xiw6ipFzAtOwGKV0aX6DdYn_tSND9AjT/view)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/18CYhpfCQpSYruEs6Q0IMe95XfiZ2s_WW/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
